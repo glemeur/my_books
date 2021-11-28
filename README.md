@@ -20,9 +20,6 @@ Keeping records of my favourite books
 ## Juin
 - Edouard Louis — _Combats et Métamorphose d'une femme_
 
-## Mai
-- 
-
 ## Avril
 - Pierre Lemaitre — _Miroir de nos peines_
 - Henri Loevenbruck — _J'airai tuer pour vous_
